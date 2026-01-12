@@ -14,7 +14,6 @@ I lead Enterprise Applications & Engineering at AHEAD, where I've successfully g
 
 ## 📫 How to reach me
 - LinkedIn: [Let's Connect](https://www.linkedin.com/in/samshrefler/)
-- Email: sam@shrefler.net
 
 ## 🔗 Current Focus
 
